@@ -1,0 +1,1 @@
+For optimal exerience adjust resolution with your screen's resolution.
